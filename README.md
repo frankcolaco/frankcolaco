@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **frank.frank07@gmail.com**
 
-- ⚡ Fun fact **Coffee Lover, Part time muscian**
+- ⚡ Fun fact **Coffee Lover, Part time musician**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
